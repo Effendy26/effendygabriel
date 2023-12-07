@@ -1,2 +1,4 @@
 # effendygabriel
-ga ada deskripsi
+PESSI GAY ANAK FIFA GAK PUNYA AFF 
+
+LO BAU
